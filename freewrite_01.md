@@ -8,4 +8,6 @@ We used to just say that places started getting sketchy. Neighborhoods, towns, c
 
 ---
 
-Anyway I'm on my way to start a new job
+We were always safer as subjects. They didn't used to teach us any one way of thinking. That wasn't my experience anyway. They just let us figure it out ourselves. Most of us naturally fell into some form of individualism, which practically just meant celebrity warship. There were a million different paths to success that were all equally impossible. The trick to all of them was that you had to achieve a celebrity status in whatever particular field.
+
+Back then what being a celebrity was seemed more complex. But it just meant having an audience of viewers that outnumbered the person being viewed. Early on this created a fairly traditional hierarchy. Eventually though it became common for an individual to not only be viewers of multiple celebrities, but also act as celebrities themselves. Addidionally functional celebrities were not limited to individuals but were also very often objects. They were often called spectacles because of this. At the end of the day this all created a very stable ecosystem ov overlapping spectacle hub-and-spoke models.
