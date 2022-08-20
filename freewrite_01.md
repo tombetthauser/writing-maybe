@@ -6,4 +6,6 @@ We stayed until my dad saind the mountains started talking to him and when the t
 
 We used to just say that places started getting sketchy. Neighborhoods, towns, cities. We didn't understand what it was that was happening. Not the kids but not the adults either. We didn't even understand that something really was happening at all. But eventually it became clear that it was happening everywhere and they had to figure out something else to call it. It's hard to say if it helped anything really.
 
+---
 
+Anyway I'm on my way to start a new job
