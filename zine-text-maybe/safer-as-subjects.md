@@ -1,3 +1,5 @@
+# Safer as Subjects ✌️
+
 I remember a lot of rain when I was little. Then I remember heat. Dry grass and oak trees. The sun. I remember thinking it would just keep getting hotter and hotter until all the water evaporated, the clouds disappeared, all the trees died and all the people shriveled up into mummies and died alone in their apartments with no air conditioners. We never had an air conditioner.
 
 Then we moved to the desert. The real desert. And I learned that that kind of heat could be beautiful. Especially when all the trees and rain was gone. Just little rocks going on forever. I used to dream that somewhere out there in all the millions of different shaped rocks there must be one that was shaped like my face. Maybe a thousand feet beneath some mountain. Waiting for light to hit it some day in a million years. I never went looking for it though.
